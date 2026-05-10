@@ -1,5 +1,5 @@
 ## Hi!
-Aspiring UI/UX Designer & Frontend Developer  
+###Aspiring UI/UX Designer & Frontend Developer  
 ---
 
 ## 🧚‍♀️ About Me
